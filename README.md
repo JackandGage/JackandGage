@@ -1,2 +1,2 @@
 # JackandGage
-Mudic Group
+Music Group
